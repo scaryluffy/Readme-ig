@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=mirage-tempo&color=ffc87c&label=𝜗ৎ)
+![](https://komarev.com/ghpvc/?username=mirage-tempo&color=740000&label=:3)
 
 <p align="center">
     <img width="900" src=https://i.postimg.cc/dt0X6fZX/Untitled627-20251112195720.png>
