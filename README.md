@@ -11,4 +11,4 @@ links  <img width="60" src=https://i.postimg.cc/Dyvzf7J9/Untitled621-20251113214
 
 
 <p align="center">
-<img width="30" src=https://i.postimg.cc/kg3HCgp7/Untitled627-20251112220325.png> no DNI list 𝜗ৎ c+h is ok!! <img width="20" src=https://i.postimg.cc/DfsG4fw9/Untitled623-20251112143137.png 
+<img width="30" src=https://i.postimg.cc/kg3HCgp7/Untitled627-20251112220325.png> no DNI list 𝜗ৎ c+h is ok!! <img width="20" src=https://i.postimg.cc/DfsG4fw9/Untitled623-20251112143137.png  
